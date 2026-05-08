@@ -1,4 +1,4 @@
-
+KeePassXC for macOS elite Plugin: identity-theft-protection & VPN-integration offers the most advanced KeePassXC for macOS plugin, with identity-theft-protection and
 
 
 
